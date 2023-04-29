@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything interesting
 - 📫 Reach me via 
 - email: manojkunasekaran@gmail.com 
-- LinkedIn: https://www.linkedin.com/in/manoj-k-111758191
+- LinkedIn: https://www.linkedin.com/in/manojk89
 - Twitter : https://twitter.com/Mano__Manoj?s=09
 
 <!--
